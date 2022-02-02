@@ -1,3 +1,5 @@
+<img src="https://github.com/Amagnum/J-Boy-short-animation-film-resources/blob/master/scene_2.png" width="128"/>
+
 A usual day with a friend in my college life.
 
 Let me help with the script:
